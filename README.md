@@ -1,2 +1,3 @@
 # Day-in-Review_2025-03-03
 Day 1 of Cyber Security training at City of Refuge and NPursuit
+Gratitude overwhelms me at the opportunity that I have been presented with. Twenty-five years ago, I started a new career in the travel industry. Today, I embarked on a new opportunity thanks to NPursuit and City of Refuge. I have always known it takes a village to raise a child, but I didn't understand until today that it also applies to adults. I met my village today. My village wants me to succeed. I added a new user today and I understand how and why. Day 1 was exciting. I can't wait to see what all this program has in store for me and my fellow students. 
